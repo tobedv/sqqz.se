@@ -1,0 +1,2 @@
+# sqqz.se
+SQQZ.se
